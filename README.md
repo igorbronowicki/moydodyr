@@ -22,13 +22,13 @@ The pot of tea
 Fled from me
 Like from fire!2222222
 
-Oh my God!
-What is the matter?
-Why all the things that I can see
-Twist around,
-Whirl around,
-Spin around
-And hide from me?
+Боже, Боже,
+Что случилось?
+Отчего же
+Всё кругом
+Завертелось,
+Закружилось
+И помчалось колесом?
 
 The irons fly after the boots,
 The boots after the books,
