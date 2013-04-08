@@ -9,12 +9,12 @@ Like a frog
 Jumped away from me
 Into a fog.
 
-I reached for a candle,
-It hid in the stove!
-I reached for a book,
-It flew like a dove!
-What makes me even more upset,
-Is that it hid from me under my bed!
+Я за свечку,
+Свечка - в печку!
+Я за книжку,
+Та - бежать
+И вприпрыжку
+Под кровать!
 
 A cup of tea
 Is my desire! -
