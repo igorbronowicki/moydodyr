@@ -1,7 +1,7 @@
 Moydodyr
 ========
 
-My blanket1111111
+My blanket
 Ran away,
 My sheet flew away,
 And my pillow
@@ -20,7 +20,7 @@ A cup of tea
 Is my desire! -
 The pot of tea
 Fled from me
-Like from fire!2222222
+Like from fire!
 
 Oh my God!
 What is the matter?
@@ -38,7 +38,7 @@ Everything revolves,
 Whirls,
 Spins,
 And rushes
-Head over heels.3333333
+Head over heels.
 
 Suddenly
 A lame and bowlegged
@@ -64,7 +64,7 @@ You have shoe polish on your neck,
 You have ink on your forehead,
 Your hands are so black
 That even your trousers,
-Even your trousers,4444444
+Even your trousers,
 Even your trousers,
 With greatest fear
 Flee away from you,
@@ -85,7 +85,7 @@ I am the Famous Moydodyr,
 I am the Headmaster of sponges and basins
 And the Commander of all sinks!
 If I stamp my foot,
-If I call my soldiers,555555
+If I call my soldiers,
 Then the crowds of basins
 Will fly and rush into this room
 And they'll bark
@@ -110,7 +110,7 @@ They started to rub me, to rub and to scrub and to blab:
 
 "We wash Chimney-Chimneysweep
 Clean, clean, clean, clean!
-Our Chimney-Chimneysweep will be777777
+Our Chimney-Chimneysweep will be
 Clean, clean, clean, clean!"
 
 Then the soap jumped up into the air
@@ -131,7 +131,7 @@ It bit me like a shark:
 I had no defense!
 
 What luck!
-My dear,8888888
+My dear,
 My favorite
 Uncle Croc
 With Totosha and Kokosha
@@ -145,7 +145,7 @@ But then he started to roar
 At me
 And his feet started to tramp
 At me:
-"Go home,999999
+"Go home,
 He says.
 Wash your face,
 He says.
@@ -176,7 +176,7 @@ And the sandwich came back to my house,
 Jumped up and straight into my mouth!
 
 My books came back,
-My notebooks too.0000000
+My notebooks too.
 The grammar book set off
 With the arithmetic book to dance.
 What a funny romance!
