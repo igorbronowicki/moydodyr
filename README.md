@@ -9,12 +9,12 @@ Like a frog
 Jumped away from me
 Into a fog.
 
-I reached for a candle,
-It hid in the stove!
-I reached for a book,
-It flew like a dove!
-What makes me even more upset,
-Is that it hid from me under my bed!
+Я за свечку,
+Свечка - в печку!
+Я за книжку,
+Та - бежать
+И вприпрыжку
+Под кровать!
 
 A cup of tea
 Is my desire! -
@@ -22,13 +22,13 @@ The pot of tea
 Fled from me
 Like from fire!
 
-Oh my God!
-What is the matter?
-Why all the things that I can see
-Twist around,
-Whirl around,
-Spin around
-And hide from me?
+Боже, Боже,
+Что случилось?
+Отчего же
+Всё кругом
+Завертелось,
+Закружилось
+И помчалось колесом?
 
 The irons fly after the boots,
 The boots after the books,
